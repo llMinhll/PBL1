@@ -19,5 +19,9 @@
 ![Tên ảnh](https://scontent.fhan4-2.fna.fbcdn.net/v/t1.15752-9/351098137_1316365572300163_3607724380574514574_n.png?_nc_cat=111&ccb=1-7&_nc_sid=ae9488&_nc_ohc=9rixC5anF84AX-tyK3R&_nc_ht=scontent.fhan4-2.fna&oh=03_AdQmgepgkiJ4vtdBmV5Evkv3iN6NpuuRbv30hhpsVBcf5A&oe=64A29715)
 ![Tên ảnh](https://scontent.fhan3-2.fna.fbcdn.net/v/t1.15752-9/351107019_634715592041963_3878444459769334996_n.png?_nc_cat=107&ccb=1-7&_nc_sid=ae9488&_nc_ohc=rqR3UAu7sz4AX8yoQxt&_nc_ht=scontent.fhan3-2.fna&oh=03_AdRB4Kg6FzzfptZS7PseQ0Cxol5FULyo_D_1GSersUd6bQ&oe=64A273E3)
 ![Tên ảnh](https://scontent.fhan4-3.fna.fbcdn.net/v/t1.15752-9/351455771_556719893203829_1193232971919513216_n.png?_nc_cat=100&ccb=1-7&_nc_sid=ae9488&_nc_ohc=BI-dvnoeC-EAX99rkLg&_nc_ht=scontent.fhan4-3.fna&oh=03_AdQjb90DqzbUnveEFlXkQTG7lOIsbS6KLtfxGFnoww1Cyg&oe=64A2718E)
-
+Do chưa nhập thông tin khách hàng nên doanh thu =0
+![Tên ảnh](https://scontent.fhan4-2.fna.fbcdn.net/v/t1.15752-9/351524867_798440238237030_6758843843037958742_n.png?_nc_cat=111&ccb=1-7&_nc_sid=ae9488&_nc_ohc=qqGUhs_hUrEAX8Uv-Ox&_nc_ht=scontent.fhan4-2.fna&oh=03_AdRaZz1jJceCTIaAUq8d5tQY8UMN_EmE9auSqlP-PiVJ2Q&oe=64A2A0B5)
+![Tên ảnh](https://scontent.fhan4-2.fna.fbcdn.net/v/t1.15752-9/344653066_748274560410034_626063863886371013_n.png?_nc_cat=111&ccb=1-7&_nc_sid=ae9488&_nc_ohc=eFOZIKRNg3UAX8adL2T&_nc_ht=scontent.fhan4-2.fna&oh=03_AdTc4JYORy9OE5PzKDE_ZE5NWXh0_0c0fEf-IAc3AyRDWQ&oe=64A27F88)
+Sau khi kết thúc làm việc
+![Tên ảnh](https://scontent.fhan3-5.fna.fbcdn.net/v/t1.15752-9/351300475_1227906314530134_5535084361174611578_n.png?_nc_cat=110&ccb=1-7&_nc_sid=ae9488&_nc_ohc=ahYYBiBVE8YAX-HVBki&_nc_ht=scontent.fhan3-5.fna&oh=03_AdSm30hcmGgIVPe0JdC4UkVYyt8wkti7dPO71oVZqAq1fg&oe=64A28BCD)
 
